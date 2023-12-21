@@ -1,4 +1,5 @@
 # NiShiv Wedding
-Welcome to our live event! Click the link below to watch:
+Welcome to our live event!
 
-[Watch Live]( https://www.youtube.com/watch?v=4EVKvceWPE0&list=RD4EVKvceWPE0&start_radio=1)
+Niti ❤️ Shivang wedding will be live on youtube on 27/01/2024 from 8:45 am(IST)
+[Watch Live: On 27/01/2024 from 8:45am (IST)]( https://www.youtube.com/watch?v=4EVKvceWPE0&list=RD4EVKvceWPE0&start_radio=1)
