@@ -8,5 +8,5 @@
 
 
 ### Wedding Ceremony(Evening).💃💍. The below link will be activated after 4:00 PM (IST).
-(https://youtube.com/live/BSi0yXBXhdA?feature=share)
+(https://youtube.com/live/bGd0GhrYH68?feature=share) 
 
